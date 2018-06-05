@@ -1,2 +1,2 @@
 # stylies-shoes
-raul garcia mirtiam olvera jessca toribio
+raul garcia miriam olvera jessica toribio
